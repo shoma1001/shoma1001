@@ -1,4 +1,4 @@
-# Hi, I'm Shoma Kumari 👋
+# Hi, I'm Shoma Kumari 
 
 ## About Me
 
